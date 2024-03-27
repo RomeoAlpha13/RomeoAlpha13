@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RomeoAlpha13
-- 👀 I’m interested in becoming a Billionaire
+- 👀 I’m interested in becoming a Trillionaire
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on a Python project
 - 📫 How to reach me give me a call but id rather text
